@@ -1,2 +1,1 @@
-# Does-anyone-else-have-issues-
-… you’ll know once you click this repository 
+does anyone else have issues with this app? I mean it’s a bookmark from safari-probably why. But it’s stunning slow..no? might be my connection to this school network lol. ANYWHO have you didn’t Inktober yet? open 10/1-10/28 preferably
